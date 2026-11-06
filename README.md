@@ -61,4 +61,4 @@ PSG College of Arts and Science
 
 ---
 
-*Exploring the Universe through Physics, Radio Astronomy, and Computation.*
+*Trust the Process.*
